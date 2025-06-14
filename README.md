@@ -35,7 +35,6 @@ Budgets of ₹30–50 lakhs show better student performance and placements.
 → Focus on quality over quantity in internship programs.
 
 6. Faculty Retention Link
-
 71–80% faculty retention correlates with high student satisfaction and graduation rates.
 → Improve retention via training, support, and engagement.
 
